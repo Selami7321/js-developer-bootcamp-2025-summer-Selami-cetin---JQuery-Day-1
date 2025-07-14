@@ -1,0 +1,1 @@
+# js-developer-bootcamp-2025-summer-Selami-etin---JQuery-Day-1
